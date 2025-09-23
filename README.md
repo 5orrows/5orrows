@@ -1,4 +1,4 @@
-hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
+Int b4 pending . bmf n c+h me plss !! P:
 
 ![image alt](https://i.imgur.com/LmfQ9fS.jpeg)
 
