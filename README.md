@@ -3,7 +3,7 @@
 
 ![image alt](https://i.imgur.com/LmfQ9fS.jpeg)
 
-⠀⠀⠀follow pls, for an autograph and picture . /j ^_^
+⠀⠀⠀follow me for sweets, not click bait !
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
