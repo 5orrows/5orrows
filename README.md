@@ -1,7 +1,7 @@
 
 ⠀⠀⠀⠀⠀⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://pbalim.carrd.co/)
 
-![image alt](https://s2.ezgif.com/tmp/ezgif-2883f332daeb4c.gif) 
+![image alt](https://s2.ezgif.com/tmp/ezgif-2d27c6b9c9555e.gif) 
 
 ⠀ ⠀⠀⠀⠀follow me for sweets, not click bait !
 <!--
