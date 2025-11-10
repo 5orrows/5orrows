@@ -4,7 +4,6 @@
 ![image alt](https://i.imgur.com/FsCXixe.png) 
 
 ⠀ ⠀⠀⠀⠀follow me for sweets, not click bait !
-        <div align="center">
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
