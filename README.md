@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
+![profileviews](https://github.com/5orrows)
 
 <h6 align="center">
   
