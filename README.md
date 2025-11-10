@@ -8,7 +8,7 @@
 
 ![image alt](https://i.imgur.com/FsCXixe.png) 
 
-⠀ ⠀⠀⠀⠀follow me for sweets, not click bait !
+⠀ ⠀⠀⠀⠀hit da subscribe(follow) button for 102901201920920909203 mil dolla
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
