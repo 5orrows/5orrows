@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![Sukuna](https://komarev.com/ghpvc/?username=5orrows&label=Sukuna&color=red)
+![Sukuna](https://komarev.com/ghpvc/?username=5orrows&label=Sukuna'sKissCount&color=red)
 
 <h6 align="center">
   
