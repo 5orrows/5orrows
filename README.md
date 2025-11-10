@@ -1,4 +1,9 @@
+<h6 align="center">
 
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
+
+<h6 align="center">
+  
 ⠀⠀⠀⠀⠀⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://pbalim.carrd.co/)
 
 ![image alt](https://i.imgur.com/FsCXixe.png) 
