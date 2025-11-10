@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=5orrows&color=red)
+![Sukuna's glaze count](https://komarev.com/ghpvc/?username=5orrows&color=red)
 
 <h6 align="center">
   
