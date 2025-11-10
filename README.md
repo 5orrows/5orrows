@@ -1,12 +1,12 @@
+ 
+  ⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://pbalim.carrd.co/)
+
+![image alt](https://i.imgur.com/FsCXixe.png) 
 <h6 align="center">
 
 ![Sukuna](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
-  
-  ⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://pbalim.carrd.co/)
-
-![image alt](https://i.imgur.com/FsCXixe.png) 
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
