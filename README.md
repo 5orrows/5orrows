@@ -7,8 +7,6 @@
 ⠀⠀⠀⠀⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://pbalim.carrd.co/)
 
 ![image alt](https://i.imgur.com/FsCXixe.png) 
-
-⠀ ⠀⠀⠀⠀hit da subscribe(follow) button for 102901201920920909203 mil dolla
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
