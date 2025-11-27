@@ -3,7 +3,7 @@
 ![image alt](https://i.imgur.com/FsCXixe.png) 
 <h6 align="center">
 
-![Sukuna](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
+![pfpview](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
 <!--
