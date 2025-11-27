@@ -3,7 +3,7 @@
 ![image alt](https://i.imgur.com/FsCXixe.png) 
 <h6 align="center">
 
-![pfpview](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
+![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
 <!--
