@@ -7,7 +7,7 @@
 
 <h6 align="center">
 
- ![tokyo drift](https://s4.ezgif.com/tmp/ezgif-460a4dafcd1fe2c9.webp)
+ ![GIF](https://s4.ezgif.com/tmp/ezgif-460a4dafcd1fe2c9.webp)
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
