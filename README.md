@@ -1,13 +1,11 @@
  ⠀⠀⠀ ⠀⠀ ⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/)
 
-![image alt](https://i.imgur.com/FsCXixe.png) 
+![](https://s4.ezgif.com/tmp/ezgif-4bbeb0459010bbd5.webp)
 <h6 align="center">
 
 ![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
-
- ![](https://s4.ezgif.com/tmp/ezgif-4bbeb0459010bbd5.webp)
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
