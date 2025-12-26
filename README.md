@@ -7,7 +7,7 @@
 
 <h6 align="center">
 
- ![GIF](https://s4.ezgif.com/tmp/ezgif-460a4dafcd1fe2c9.webp)
+ ![demo](https://s4.ezgif.com/tmp/ezgif-460a4dafcd1fe2c9.webp)
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
