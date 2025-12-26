@@ -1,6 +1,6 @@
  ⠀⠀⠀ ⠀⠀ ⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/)
 
-![](https://www.mediafire.com/file/jjfilwpy57vgnfe/ezgif-41a575098debdad9.webp/file) 
+![demo_gif](https://www.mediafire.com/file/jjfilwpy57vgnfe/ezgif-41a575098debdad9.webp/file) 
 <h6 align="center">
 
 ![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
