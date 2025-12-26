@@ -7,7 +7,7 @@
 
 <h6 align="center">
 
- ![](https://s4.ezgif.com/tmp/ezgif-460a4dafcd1fe2c9.webp)
+ ![](https://s4.ezgif.com/tmp/ezgif-4bbeb0459010bbd5.webp)
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
