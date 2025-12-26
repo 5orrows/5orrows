@@ -1,6 +1,6 @@
  ⠀⠀⠀ ⠀⠀ ⠀[STRAW PAGE](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/)
 
-![gif alt](https://github.com/5orrows/pbalim/blob/17b9219071decbcedf38a5c01e6656ed3ee2dd47/ezgif-41a575098debdad9.webp) 
+![](https://github.com/5orrows/pbalim/blob/17b9219071decbcedf38a5c01e6656ed3ee2dd47/ezgif-41a575098debdad9.webp) 
 <h6 align="center">
 
 ![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
