@@ -1,11 +1,15 @@
- ⠀  ⠀⠀[STRAW PAGE:OLD](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀[STUPIDCHUDS](https://snoopypeanut.straw.page/)
+ ⠀  ⠀⠀[STRAW PAGE:OLD](https://pbalim3.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀
 
 ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
+
+⠀  ⠀⠀[STUPIDCHUDS](https://snoopypeanut.straw.page/)
+
 <h6 align="center">
 
 ![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
+
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
