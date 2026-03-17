@@ -2,7 +2,7 @@
 
 ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
 
-⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀[STUPIDCHUDS](https://snoopypeanut.straw.page/)
+⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀[STUPIDCHUDS](https://snoopypeanut.straw.page/)
 
 <h6 align="center">
 
