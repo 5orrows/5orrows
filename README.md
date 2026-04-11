@@ -4,11 +4,11 @@
 ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
 <h6 align="center">
 
-![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
+![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=darkred)
 
 <h6 align="center">
 
-![](https://s8.ezgif.com/tmp/ezgif-83ce4b2aeaa6040a.gif)
+
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
