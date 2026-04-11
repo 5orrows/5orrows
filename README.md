@@ -1,6 +1,6 @@
 ![](https://s8.ezgif.com/tmp/ezgif-8e0549acb5f8218c.gif)
 
-⠀  ⠀[STRAW PAGE](https://sorrowism.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀ [♡](https://snoopypeanut.straw.page/)
+⠀ ⠀ ⠀  ⠀[STRAW PAGE](https://sorrowism.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀ [♡](https://snoopypeanut.straw.page/)
 ![](https://s8.ezgif.com/tmp/ezgif-83ce4b2aeaa6040a.gif)
 
 <h6 align="center">
