@@ -4,7 +4,7 @@
  ⠀⠀ ⠀[STRAW PAGE](https://sorrowism.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀ [♡](https://snoopypeanut.straw.page/)
 
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
 <h6 align="center">
 
 ![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
