@@ -4,7 +4,7 @@
 ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
 <h6 align="center">
 
-![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=black)
+![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
 
 <h6 align="center">
 
