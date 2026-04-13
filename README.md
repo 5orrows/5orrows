@@ -1,4 +1,4 @@
-![](https://s2.ezgif.com/tmp/ezgif-2105ad31f314ce1d.gif)
+![](https://github.com/5orrows/5orrows/blob/b78ef5f1df2531ef76ec6d8091dfb9a8621e63d2/Untitled52_20260410212135.png)
 ⠀ ⠀ ⠀ ⠀[STRAW PAGE](https://sorrowism.straw.page/) ⠀[ATABOOK](https://pbalim.atabook.org/)⠀ [CARRD](https://alims.carrd.co/) ⠀ [♡](https://snoopypeanut.straw.page/)
 ![](https://s8.ezgif.com/tmp/ezgif-83ce4b2aeaa6040a.gif)
 
