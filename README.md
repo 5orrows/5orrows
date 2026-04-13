@@ -11,7 +11,7 @@
  ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
 
 
- ![](https://s8.ezgif.com/tmp/ezgif-8937038d8ac9ab91.gif)
+ ![](https://github.com/5orrows/5orrows/blob/98e084d2290cec10b210fdc34da7199971a04612/Untitled52_20260410212155.png)
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
