@@ -14,6 +14,7 @@
  ![](https://github.com/5orrows/5orrows/blob/4fd52fedf128ae8b43acb90ae27e09e3f5d4458f/Untitled52_20260429174205.png)
 
  [![](https://files.catbox.moe/3crgit.png)](https://pbalim.atabook.org)
+ [![]([https://s2.ezgif.com/tmp/ezgif-2241cd307df3bd4f.png)](https://sorrowism.straw.page)
 
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
