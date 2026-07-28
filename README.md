@@ -11,13 +11,10 @@
 
 <p align="center">
 ><a href="https://sorrowism.straw.page"><img src="https://files.catbox.moe/hpb9t5.png" width="400” height="auto"
-  <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="300" height="auto">
-  <img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" name="https://pbalim.atabook.org" width="300" height="auto">
+><a href="https://pbalim.atabook.org"><img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" width="400” height="auto"
 
 <p align="center">
-  <img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" name="https://lovingsouls.straw.page" width="300" height="auto">
-  <img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1231.png" name="https://alims.carrd.co/" width="300" height="auto">
-</p>
+ ><a href="https://lovingsouls.straw.page"><img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" width="400” height="auto"><a href="https://alims.carrd.co/"><img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1231.pn" width="400” height="auto"
 
 ![](https://github.com/5orrows/5orrows/blob/9e30809451b6b1017131d8e924819ba9a8fc9bce/Untitled94_20260728125806.png)
 
