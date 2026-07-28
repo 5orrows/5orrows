@@ -12,11 +12,11 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="300" height="auto">
-  <img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" name="https://sorrowism.straw.page" width="300" height="auto">
+  <img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" name="https://pbalim.atabook.org" width="300" height="auto">
 
 <p align="center">
-  <img src="https://files.catbox.moe/1k38fg.png" name="https://sorrowism.straw.page" width="300" height="auto">
-  <img src="https://files.catbox.moe/f0zypy.png" name="https://sorrowism.straw.page" width="300" height="auto">
+  <img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" name="https://lovingsouls.straw.page" width="300" height="auto">
+  <img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1231.png" name="https://alims.carrd.co/" width="300" height="auto">
 </p>
 
 [![](https://files.catbox.moe/x8r6mh.png)](https://alims.carrd.co/)[![](https://files.catbox.moe/x7d7x4.png)](https://lovingsouls.straw.page)
