@@ -12,7 +12,6 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="300" height="auto">
-</p><p align="center">
   <img src="https://files.catbox.moe/0q05u0.png" name="https://sorrowism.straw.page" width="300" height="auto">
 </p><p align="center">
   <img src="https://files.catbox.moe/1k38fg.png" name="https://sorrowism.straw.page" width="300" height="auto">
