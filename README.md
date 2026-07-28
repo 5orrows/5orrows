@@ -8,7 +8,6 @@
 
 <h6 align="center">
  
-
 <p align="center">
 ><a href="https://sorrowism.straw.page"><img src="https://github.com/5orrows/5orrows/blob/0881f336a82c4f0fc2ecea52ab225c1d1fff1e29/IMG_1226.png" width="100” height="auto"
  ><a href="https://pbalim.atabook.org"><img src="https://github.com/5orrows/5orrows/blob/8f9325153ec9f39b4dd6cca66317c023ee72d4c7/IMG_1230.png" width="100” height="auto" ><a href="https://lovingsouls.straw.page"><img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" width="100” height="auto"
