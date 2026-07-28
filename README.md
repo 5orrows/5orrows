@@ -12,10 +12,10 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="300" height="auto">
-  <img src="https://files.catbox.moe/0q05u0.png" name="https://sorrowism.straw.page" width="300" height="auto">
-</p><p align="center">
+  <img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" name="https://sorrowism.straw.page" width="300" height="auto">
+
+<p align="center">
   <img src="https://files.catbox.moe/1k38fg.png" name="https://sorrowism.straw.page" width="300" height="auto">
-</p><p align="center">
   <img src="https://files.catbox.moe/f0zypy.png" name="https://sorrowism.straw.page" width="300" height="auto">
 </p>
 
