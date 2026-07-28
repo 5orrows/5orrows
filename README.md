@@ -11,7 +11,7 @@
 [![](https://files.catbox.moe/i61u6h.png)](https://sorrowism.straw.page)[![](https://files.catbox.moe/ler3ms.png)](https://pbalim.atabook.org)
 
 <p align="center">
-  <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="100" height="auto">
+  <img src="https://files.catbox.moe/hpb9t5.png" name="https://sorrowism.straw.page" width="300" height="auto">
 </p>
 
 [![](https://files.catbox.moe/x8r6mh.png)](https://alims.carrd.co/)[![](https://files.catbox.moe/x7d7x4.png)](https://lovingsouls.straw.page)
