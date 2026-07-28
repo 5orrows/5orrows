@@ -27,9 +27,6 @@
 
 <h6 align="center">
 
- ![](https://github.com/5orrows/5orrows/blob/main/tokyodrift.gif?raw=true)
-
-
  ![](https://github.com/5orrows/5orrows/blob/b34ffc789ed0f452335c9528d1fb2d21ebeaa626/IMG_1217.png)
 
 
