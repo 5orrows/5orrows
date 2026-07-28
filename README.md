@@ -17,7 +17,7 @@
 
 <h6 align="center">
 
-![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=red)
+![hi](https://komarev.com/ghpvc/?username=5orrows&label=🫀&color=darkblue)
 
 <h6 align="center">
 
