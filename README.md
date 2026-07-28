@@ -10,7 +10,7 @@
 
 
 [![](https://files.catbox.moe/x8r6mh.png)](https://alims.carrd.co/)[![](https://files.catbox.moe/x7d7x4.png)](https://lovingsouls.straw.page)
-![](https://files.catbox.moe/5glsh2.png)
+![](https://github.com/5orrows/5orrows/blob/c198b663c06391ddee6101a04bfd8c720aef2f5d/Untitled94_20260728125806.png)
 
 <h6 align="center">
 
