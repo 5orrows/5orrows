@@ -10,8 +10,7 @@
  
 
 <p align="center">
-><a href="https://sorrowism.straw.page"><img src="https://github.com/5orrows/5orrows/blob/0881f336a82c4f0fc2ecea52ab225c1d1fff1e29/IMG_1226.png" width="400” height="auto"
-><a href="https://pbalim.atabook.org"><img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" width="400” height="auto"
+><a href="https://sorrowism.straw.page"><img src="https://github.com/5orrows/5orrows/blob/0881f336a82c4f0fc2ecea52ab225c1d1fff1e29/IMG_1226.png" width="400” height="auto"><a href="https://pbalim.atabook.org"><img src="https://github.com/5orrows/5orrows/blob/8072209097127bd9020cbecb8baeb6724d2fa696/IMG_1230.png" width="400” height="auto"
 
 <p align="center">
  ><a href="https://lovingsouls.straw.page"><img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" width="400” height="auto"><a href="https://alims.carrd.co/"><img src="https://github.com/5orrows/5orrows/blob/c89ca5393bb892ba8a29cfb01aec65923dff109d/IMG_1231.png" width="400” height="auto"
