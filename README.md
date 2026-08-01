@@ -13,7 +13,7 @@
  ><a href="https://pbalim.atabook.org"><img src="https://github.com/5orrows/5orrows/blob/8f9325153ec9f39b4dd6cca66317c023ee72d4c7/IMG_1230.png" width="150” height="auto" ><a href="https://lovingsouls.straw.page"><img src="https://github.com/5orrows/5orrows/blob/62592c26774bc0531cada07dc03fc20b3d3c7e5d/IMG_1232.png" width="150” height="auto"
   ><a href="https://alims.carrd.co/"><img src="https://github.com/5orrows/5orrows/blob/c89ca5393bb892ba8a29cfb01aec65923dff109d/IMG_1231.png" width="150” height="auto"
 
-![](https://github.com/5orrows/5orrows/blob/d8dd4e2582adf9332b40056b5f883d9f282d207f/Untitled94_20260728131020.png)
+![](https://github.com/5orrows/theweekndkuna/blob/e8b10536946e3ff6bd76a87c708163a30d1e1a53/Untitled94_20260731200026.png)
 
 <h6 align="center">
 
