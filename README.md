@@ -21,6 +21,8 @@
 
 <h6 align="center">
 
+[title-town](https://github.com/title-town) [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media as @1CHIGO-KUROSAKI](https://github.com/pt-hall-of-media) [pt-fashion](https://github.com/pt-fashion) [pt-nominations](https://github.com/pt-nominations) [
+
  ![](https://github.com/5orrows/5orrows/blob/b34ffc789ed0f452335c9528d1fb2d21ebeaa626/IMG_1217.png)
 
 
