@@ -21,6 +21,8 @@
 
 <h6 align="center">
 
+♡ Thank You So Much ! :)
+
 [title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)
 
 [pt-hall-of-media as](https://github.com/pt-hall-of-media) [@1CHIGO-KUROSAKI](https://github.com/1CHIGO-KUROSAKI)⠀[pt-friendships w/ my sister](https://github.com/pt-friendships) [@sleepyroseee](https://github.com/sleepyroseee)
