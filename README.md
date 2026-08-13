@@ -1,9 +1,12 @@
 <h6 align="center">
 
 ![](https://github.com/5orrows/5orrows/blob/b34ffc789ed0f452335c9528d1fb2d21ebeaa626/IMG_1217.png)
-<h6 align="center">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31brj477k523k7d763qcbjlsatyi&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31brj477k523k7d763qcbjlsatyi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![](https://files.catbox.moe/bg20n7.png)
 
 <h6 align="center">
