@@ -24,7 +24,7 @@
 
 <h6 align="center">
 
-♡ Thank You So Much ! :)
+♡ Thank You So Much ! ^u^
 
 [title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)
 
