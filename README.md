@@ -24,7 +24,7 @@
 
 <h6 align="center">
 
-♡ Thank You So Much ! ^u^
+♡ Monkey covering eyes emoji, Thanks ! ^u^
 
 [title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)
 
