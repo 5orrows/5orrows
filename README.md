@@ -26,7 +26,7 @@
 
 ♡ Monkey covering eyes emoji, Thanks ! ^u^
 
-[title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)⠀[pt-icon](https://github.com/pt-icon)⠀[Ponytowns-rewards](https://github.com/Ponytowns-rewards)
+[title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)⠀[pt-icon](https://github.com/pt-icon)⠀[ponytowns-rewards](https://github.com/Ponytowns-rewards)
 
 [pt-hall-of-media](https://github.com/pt-hall-of-media) as [@1CHIGO-KUROSAKI](https://github.com/1CHIGO-KUROSAKI)⠀[pt-friendships](https://github.com/pt-friendships) w/ my big sister [@sleepyroseee](https://github.com/sleepyroseee)
 
