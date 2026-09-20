@@ -8,7 +8,7 @@
 <p align="center">
 
 <details>
-  <summary>cute irl ship art by my pretty girl, @7oriord</summary></summary>
+  <summary>cute irl ship art by a pretty girl, @7oriord</summary></summary>
   
   <br>
   
