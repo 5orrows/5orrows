@@ -6,6 +6,17 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31brj477k523k7d763qcbjlsatyi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p align="center">
+
+<details>
+  <summary>cute irl ship art by my pretty girl, @7oriord</summary></summary>
+  
+  <br>
+  
+![](https://github.com/1CHIGO-KUROSAKI/1CHIGO-KUROSAKI/blob/5441ca55b0ce94bb4005d9ed33c5e85decf19294/IMG_1464.jpeg)
+
+<br>
+  
+</details>
   
 ![](https://files.catbox.moe/bg20n7.png)
 
@@ -28,7 +39,7 @@
 
 [pt-hall-of-media](https://github.com/pt-hall-of-media) as [@1CHIGO-KUROSAKI](https://github.com/1CHIGO-KUROSAKI)⠀[pt-friendships](https://github.com/pt-friendships) w/ my big sister [@sleepyroseee](https://github.com/sleepyroseee)
 
-[title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)⠀[pt-icon](https://github.com/pt-icon)⠀[ponytowns-rewards](https://github.com/Ponytowns-rewards)⠀[pt-fantastic-hall](https://github.com/PT-FANtastic-Hall)
+[title-town](https://github.com/title-town)⠀[pt-walk-of-fame](https://github.com/pt-walk-of-fame)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-nominations](https://github.com/pt-nominations)⠀[pt-medals](https://github.com/pt-medals)⠀[pt-icon](https://github.com/pt-icon)⠀[ponytowns-rewards](https://github.com/Ponytowns-rewards)⠀[pt-fantastic-hall](https://github.com/PT-FANtastic-Hall)⠀[paw-town](https://github.com/paw-town)⠀[kaotown](https://github.com/kaotown)
 
 
  ![](https://github.com/5orrows/5orrows/blob/b34ffc789ed0f452335c9528d1fb2d21ebeaa626/IMG_1217.png)
