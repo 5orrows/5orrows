@@ -8,11 +8,10 @@
 <p align="center">
 
 <a href="https://rentry.org/sharkittyarts">
-  <img src="https://github.com/5orrows/5orrows/blob/1729d0137551824e9ac5e29c08f9167e420ed2c4/IMG_1801.png" alt="150" width="auto">
+  <img src="https://github.com/5orrows/5orrows/blob/1729d0137551824e9ac5e29c08f9167e420ed2c4/IMG_1801.png" alt="50" width="200">
 </a>
 
-
-[<3 click to see cute irlship drawings](https://rentry.org/sharkittyarts)
+[pt-ship-nominations](https://github.com/pt-ship-nominations) with [@7oriord <3](https://github.com/7oriord)
   
 ![](https://files.catbox.moe/bg20n7.png)
 
