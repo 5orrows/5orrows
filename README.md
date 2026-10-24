@@ -8,7 +8,7 @@
 <p align="center">
 
 <a href="https://rentry.org/sharkittyarts">
-  <img src="https://github.com/5orrows/5orrows/blob/1729d0137551824e9ac5e29c08f9167e420ed2c4/IMG_1801.png" alt="50" width="200">
+  <img src="https://github.com/5orrows/5orrows/blob/b58f2b1643cd5e9ad00813fda318e9a34300a0ae/IMG_1802.png" alt="50" width="220">
 </a>
 
 [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@7oriord <3](https://github.com/7oriord)
