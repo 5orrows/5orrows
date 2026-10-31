@@ -11,17 +11,6 @@
   <img src="https://github.com/5orrows/5orrows/blob/b58f2b1643cd5e9ad00813fda318e9a34300a0ae/IMG_1802.png" alt="50" width="220">
 </a>
 
-<details>
-  <summary>click</summary></summary>
-  
-  <br>
-  
-![](https://files.catbox.moe/osl532.mov)
-
-<br>
-  
-</details>
-
 [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@7oriord <3](https://github.com/7oriord)
   
 ![](https://files.catbox.moe/bg20n7.png)
