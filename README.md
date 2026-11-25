@@ -60,7 +60,7 @@
 
 <h6 align="center">
 
-[ᵖᵗ⁻ˢʰⁱᵖ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ](https://github.com/pt-ship-nominations) ʷ/ [@⁷ᵒʳⁱᵒʳᵈ](https://github.com/7oriord)⠀[ᵖᵗ⁻ᶠʳⁱᵉⁿᵈˢʰⁱᵖˢ](https://github.com/pt-friendships) ʷ/ [@ˢˡᵉᵉᵖʸʳᵒˢᵉᵉᵉ](https://github.com/sleepyroseee)⠀⠀⠀$ 𝔢𝔵𝔱𝔯 ; [ᵗⁱᵗˡᵉ⁻ᵗᵒʷⁿ](https://github.com/title-town)⠀ᵖᵗ⁻ʰᵃˡˡ⁻ᵒᶠ⁻ᵐᵉᵈⁱᵃ⠀ᵖᵗ⁻ʷᵃˡᵏ⁻ᵒᶠ⁻ᶠᵃᵐᵉ⠀ᵖᵗ⁻ᶠᵃˢʰⁱᵒⁿ⠀ᵖᵗ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ⠀ᵖᵗ⁻ᵐᵉᵈᵃˡˢ⠀ᵖᵗ⁻ⁱᶜᵒⁿ⠀ᵖᵒⁿʸᵗᵒʷⁿˢ⁻ʳᵉʷᵃʳᵈˢ⠀ᵖᵗ⁻ᶠᵃⁿᵗᵃˢᵗⁱᶜ⁻ʰᵃˡˡ⠀ᵖᵃʷ⁻ᵗᵒʷⁿ⠀ᵏᵃᵒᵗᵒʷⁿ⠀ᵖⁱᵈᵈˡᵉˢʲᵉᵗ⠀ᵏⁿᵒˣ⁻ᵉᵛᵉⁿᵗ⠀ᵗʰᵉ⁻ᵗᵉᵐᵖⁱˢᵗ
+[ᵖᵗ⁻ˢʰⁱᵖ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ](https://github.com/pt-ship-nominations) ʷ/ [@⁷ᵒʳⁱᵒʳᵈ](https://github.com/7oriord)⠀[ᵖᵗ⁻ᶠʳⁱᵉⁿᵈˢʰⁱᵖˢ](https://github.com/pt-friendships) ʷ/ [@ˢˡᵉᵉᵖʸʳᵒˢᵉᵉᵉ](https://github.com/sleepyroseee)⠀⠀⠀$ 𝔢𝔵𝔱𝔯 ; [ᵗⁱᵗˡᵉ⁻ᵗᵒʷⁿ](https://github.com/title-town)⠀[ᵖᵗ⁻ʰᵃˡˡ⁻ᵒᶠ⁻ᵐᵉᵈⁱᵃ](https://github.com/pt-hall-of-media)⠀[ᵖᵗ⁻ʷᵃˡᵏ⁻ᵒᶠ⁻ᶠᵃᵐᵉ](https://github.com/pt-walk-of-fame)⠀[ᵖᵗ⁻ᶠᵃˢʰⁱᵒⁿ](https://github.com/pt-fashion)⠀[ᵖᵗ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ](https://github.com/pt-nominations)⠀[ᵖᵗ⁻ᵐᵉᵈᵃˡˢ](https://github.com/pt-medals)⠀[ᵖᵗ⁻ⁱᶜᵒⁿ](https://github.com/pt-icon)⠀[ᵖᵒⁿʸᵗᵒʷⁿˢ⁻ʳᵉʷᵃʳᵈˢ](https://github.com/pt-rewards)⠀[ᵖᵗ⁻ᶠᵃⁿᵗᵃˢᵗⁱᶜ⁻ʰᵃˡˡ](https://github.com/pt-fantastic-hall)⠀[ᵖᵃʷ⁻ᵗᵒʷⁿ](https://github.com/paw-town)⠀[ᵏᵃᵒᵗᵒʷⁿ](https://github.com/kaotown)⠀[ᵖⁱᵈᵈˡᵉˢʲᵉᵗ](https://github.com/piddlesjet)⠀[ᵏⁿᵒˣ⁻ᵉᵛᵉⁿᵗ](https://github.com/knox-event)⠀[ᵗʰᵉ⁻ᵗᵉᵐᵖⁱˢᵗ](https://github.com/the-tempist)
 
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
