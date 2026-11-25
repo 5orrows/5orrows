@@ -60,6 +60,7 @@
 
 <h6 align="center">
 
+[ᵖᵗ⁻ˢʰⁱᵖ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ](https://github.com/pt-ship-nominations) ʷ/ [@⁷ᵒʳⁱᵒʳᵈ](https://github.com/7oriord)⠀[ᵖᵗ⁻ᶠʳⁱᵉⁿᵈˢʰⁱᵖˢ](https://github.com/pt-friendships) ʷ/ [@ˢˡᵉᵉᵖʸʳᵒˢᵉᵉᵉ](https://github.com/sleepyroseee)⠀⠀⠀$ 𝔢𝔵𝔱𝔯 ; [ᵗⁱᵗˡᵉ⁻ᵗᵒʷⁿ](https://github.com/title-town)⠀ᵖᵗ⁻ʰᵃˡˡ⁻ᵒᶠ⁻ᵐᵉᵈⁱᵃ⠀ᵖᵗ⁻ʷᵃˡᵏ⁻ᵒᶠ⁻ᶠᵃᵐᵉ⠀ᵖᵗ⁻ᶠᵃˢʰⁱᵒⁿ⠀ᵖᵗ⁻ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ⠀ᵖᵗ⁻ᵐᵉᵈᵃˡˢ⠀ᵖᵗ⁻ⁱᶜᵒⁿ⠀ᵖᵒⁿʸᵗᵒʷⁿˢ⁻ʳᵉʷᵃʳᵈˢ⠀ᵖᵗ⁻ᶠᵃⁿᵗᵃˢᵗⁱᶜ⁻ʰᵃˡˡ⠀ᵖᵃʷ⁻ᵗᵒʷⁿ⠀ᵏᵃᵒᵗᵒʷⁿ⠀ᵖⁱᵈᵈˡᵉˢʲᵉᵗ⠀ᵏⁿᵒˣ⁻ᵉᵛᵉⁿᵗ⠀ᵗʰᵉ⁻ᵗᵉᵐᵖⁱˢᵗ
 
 <!--
 **5orrows/5orrows** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
