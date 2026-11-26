@@ -6,7 +6,7 @@
 <h6 align="center">
  
 <h6 align="center">
-⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&pause=300&delay=30&color=F7F7F7&width=435&lines=Baby%2C+lovin%E2%80%99+you+is+a+lonely+ride;You%E2%80%99re+my+bottle%2C+drugs%2C+violetlight;Baby%2C+lovin%E2%80%99+you+is+my+only+vice;You%E2%80%99re+my+bottle%2C+drugs%2C+only+mine;%E2%80%9CMy+Only+Vice%E2%80%9D+from+GTA+6;The+weeknd+%26+Justice+-+GTA6" alt="Typing SVG" /></a>
+⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&pause=300&delay=30&color=F7F7F7&width=435&lines=Baby%2C+lovin%E2%80%99+you+is+a+lonely+ride;You%E2%80%99re+my+bottle%2C+drugs%2C+violetlight;Baby%2C+lovin%E2%80%99+you+is+my+only+vice;You%E2%80%99re+my+bottle%2C+drugs%2C+only+mine;The+Weeknd+%26+Justice+-+GTA6" alt="Typing SVG" /></a>
 <h6 align="center">
  
 <p align="center">  
